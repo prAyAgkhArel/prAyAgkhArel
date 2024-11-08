@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @prAyAgkhArel
+- 👋 Hi, I’m @prAyAg
 
 
 <!---
